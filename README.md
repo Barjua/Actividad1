@@ -1,3 +1,0 @@
-# Index
-Actividad 1
-
